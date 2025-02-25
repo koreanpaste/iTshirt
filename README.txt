@@ -1,1 +1,1 @@
-개발자 티셔츠 쇼핑뫃 오픈
+개발자 티셔츠 shopping mall open 
